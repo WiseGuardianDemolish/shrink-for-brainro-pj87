@@ -1,4 +1,4 @@
-
+shrink for brainrots updated Script offers the most advanced shrink for brainrots Script, with fly and auto-farm. Perfect for dominating any match.
 
 
 
